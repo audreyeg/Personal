@@ -4,5 +4,5 @@ Currently nothing to see here. :(
 
 #### Contact
 
-[linkedIn profile](www.linkedin.com/in/ella-gainey)
+[linkedIn profile](https://www.linkedin.com/in/ella-gainey/)
 
